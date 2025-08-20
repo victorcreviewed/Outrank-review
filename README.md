@@ -128,26 +128,26 @@ Outrank.so cost only $99 per month instead of $200 per month on their currently 
 
 Here's what you are getting:
 
-30 Articles a month generated and published on auto-pilot
+• 30 Articles a month generated and published on auto-pilot
 Unlimited Users in your Organization
 
-Keyword Research made for you on auto-pilot
+• Keyword Research made for you on auto-pilot
 
-Integrates with WordPress, Webflow, Shopify and many other platforms
+• Integrates with WordPress, Webflow, Shopify and many other platforms
 
-AI Images generated in different styles
+• AI Images generated in different styles
 
-Fully SEO optimized Articles
+• Fully SEO optimized Articles
 
-Relevant YouTube videos integrated into articles
+• Relevant YouTube videos integrated into articles
 
-Articles generated in multiple languages
+• Articles generated in multiple languages
 
-Unlimited AI Rewrites
+• Unlimited AI Rewrites
 
-Custom Features requests
+• Custom Features requests
 
-Priority Support
+• Priority Support
 
 This plan gives you access to full SEO workflows, real-time SERP data, and AI-generated content that’s structured to win.
 The real question is: what’s a top-ranking blog post worth to you?
