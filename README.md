@@ -128,6 +128,8 @@ Here’s the short answer: if SEO content is part of your growth strategy, yes. 
 
 ![Image](https://github.com/user-attachments/assets/10b968ef-1dd5-4199-a035-cebbdbf72662)
 
+![Image](https://github.com/user-attachments/assets/c3e3ad47-7774-4141-bb9b-1842fd779fed)
+
 <span style="font-family: helvetica, arial, sans-serif;"><a href="https://rebrand.ly/Outrank-review"><img class="aligncenter loaded" src="https://i.imgur.com/XSo2dvH.png" data-lazy="true" /></a></span>
 
 ## Outrank.so Pricing: 
