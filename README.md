@@ -19,6 +19,7 @@ This isn’t AI writing for writing’s sake. This is AI writing with purpose—
 [Click here to try out Outrank.so](https://rebrand.ly/Outrank-review)
 
 ## How Does Outrank.so Work?
+![Image](https://github.com/user-attachments/assets/84e02590-7f1f-43bc-b91b-6ec691cd4197)
 
 Here’s where it gets cool.
 Imagine you’re launching a new blog or product page. You log into Outrank, enter a topic, a keyword, or even a competitor’s URL. In seconds, the tool pulls insights from the top-ranking content on Google. Headings, structure, tone, word count—it breaks it all down.
