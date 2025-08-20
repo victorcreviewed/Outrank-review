@@ -89,15 +89,15 @@ Click here to try out Outrank.so.
 
 Spoiler alert: stupidly easy.
 
-Go to Outrank.so.
+• Go to Outrank.so.
 
-Start a free trial or pick a plan.
+• Start a free trial or pick a plan.
 
-Choose your content goal—topic, keyword, or competitor.
+• Choose your content goal—topic, keyword, or competitor.
 
-Let the AI build an outline (edit if needed).
+• Let the AI build an outline (edit if needed).
 
-Click “Generate”—and you’ve got an SEO-ready article.
+• Click “Generate”—and you’ve got an SEO-ready article.
 You don’t need to be a copywriter. You don’t need to be an SEO wizard. If you can use Google Docs, you can use Outrank.
 
 Click here to try out Outrank.so.
